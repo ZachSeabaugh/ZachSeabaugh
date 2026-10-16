@@ -6,4 +6,4 @@ Hello People!
 - 📫 How to reach me: discord - @trigonometry7
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: top 40th listener of Zach Seabaugh on Spotify
-
+i am also the club member of google developer groups on campus DAU
